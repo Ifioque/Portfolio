@@ -1,0 +1,1 @@
+Head of Copywriting @ BBH Human Resources, Dubai 🇦🇪 • Senior Copywriter + Ad Creative Director • Campaigns, Funnels, Emails • $328K ROAS for US brands in just 2023 • Trusted by Avelve (Sri Lanka), Nord VPN, etc
